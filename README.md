@@ -6,4 +6,4 @@ About us!
 - ✨ We're new on GitHub
 - 😱 Our method: teamworks!
 
-DA MODIFICARE!!!
+- We will amaze you, you'll see
